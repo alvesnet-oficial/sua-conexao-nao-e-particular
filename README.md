@@ -1,0 +1,1 @@
+# sua-conexao-nao-e-particular
